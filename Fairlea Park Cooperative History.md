@@ -11,4 +11,6 @@ Our incorporators were:
 * Catherine Mitchell
 * David Wales
 
-A second parcel of land that boarders the Fairlea Park and our Co-op was purchased in December, 1987 with the intentions of creating 33 new town homes. After an enormous amount  
+A second parcel of land that boarders the Fairlea Park and our Co-op was purchased in December, 1987 with the intentions of creating 33 new town homes. After an enormous amount of work done by our legal counsel and the Ottawa Federation of Housing Co-operatives in obtaining rezoning application approvals, we were ready to commence construction.
+The Phase 2 of our Co-op construction began in March, 1988 and was completed in its entirety by mid-August, 1988. These new homes were developed under the Federal Index-Linked Mortgage (ILM) Co-operative Housing Programme with the Rent Supplement portion being administered provincially.
+Phase 1 of our Co-op built under the previous 56.1 Federal Co-operative Housing programme. It's Rent-geared-to-income (RGI) component is administered federally.  
