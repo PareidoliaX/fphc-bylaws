@@ -64,6 +64,7 @@ Separate waiting lists will be maintained for applicants not requiring housing c
 
 ## Allocation of Emergency Assistance to Disabled Applicants
 In cases where a vacating member occupying a unit for the disabled was not receiving assistance, but the new membr will require assistance and no permanent assistance is available, emergency assistance may be allocated on a permanent basis. In such cases, the eligibility criteria will be those outlined in section 1.
+
 ## False Declaration of Income
 Where a household is discovered to have falsely declared its income, or failed to report an increase in income, it will be required retroactively to reimburse the Co-op for assistance funds allocated to its account unjustifiably. Where the household refuses to reimburse the Co-op, the amount of the reimbursement claimed by the Co-op will be deemed to be arrears of housing charges under the Occupancy By-law, and eviction proceedings will be initiated, pursuant to the Occupancy Agreement and By-law.
 

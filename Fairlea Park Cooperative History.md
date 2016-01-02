@@ -1,0 +1,6 @@
+# History of Fairlea Park Housing Co-operative
+
+In the early 1980s, the city began to have study sessions called "Action Walkley". They wanted to find out from the people in the area what could be done with the land South of Fairlea Crescent, which was owned by the National Capital Commission (NCC) at the time.
+Clake Christy was in attendance at these meetings. Within the year he began advertising in the Heatherington-Heron Gate areas to see if there was any interest in co-operative (co-op) housing. Meetings were held at the Heatherington portables. As a result, Mike and Carol Murray became involved and the three of them began procedures to form the Fairlea Park Housing Co-operative.
+Through his own personal interest, Peter Trotscha lent his expertise to this fledgling group. At that time Peter was working for City Living, yet very involved in the private co-op housing sector. In 1983 he was hired by the Ottawa Federation of Housing Co-ops and became our official consultant. Also at the time, Robin Mckay was selected as the lawyer to advise Fairlea Park Housing Co-operative (the Co-op) on legal matters.
+In early 1983, application was made to Canada Mortgage and Housing Corporation (CMHC) 
