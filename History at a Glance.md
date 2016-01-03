@@ -126,3 +126,55 @@ Deadline met!
 ### August 11
 
 Contract signed with lender.
+
+### August 20
+
+Informed of city's site plan approval.
+
+New address to be 3019 Fairlea Park Cresent.
+
+Our corporate seal was officially adopted.
+
+### August 26
+
+Official approval by telegram from CMHC Minister.
+
+### September 
+
+Information sessions started. Member Selection Committee busy processing prospective members through these sessions and interviews.
+
+The general contractor began excavating in September without the official builders permits, as well the offical lease was not signed. The building site was silent for one month until this was resolved.
+
+### Late October
+
+Construction began in earnest. Completion time set for February 1, 1986.
+
+Completion time moved back to April 1, 1986 due to winter construction and problems with roofing contractor.
+
+## 1986
+
+### March, April, May
+
+As units are completed, members move in.
+
+Mud is everywhere.
+
+Living with the contractors still on site for quite some time did not deter the brave pioneering members from enjoying the sunshine, with a barbecue before the turf was in place.
+
+### September 27
+
+Fairlea Park Housing Co-operative celebrated its Grand Opening. Event was attended by MP Barry Turner, MPP Gilles Morin, local alderman Joan O'Neill, as well as Ann Gregory representing the Ottawa Federation of Housing Co-operatives.
+
+### November 6
+
+Construction of the Fairlea Park Housing Co-operative official utility facility building begins.
+
+## 1987
+
+### June
+
+We have now been here a year. Although we have had some growing pains, Fairlea Park Housing Co-operative has thrived and we have begun to knit together a community.
+
+### March
+
+Contruction of Phase 2 begins. 33 new homes were built under the new Federal Index-Linked Mortgage (ILM) Co-operative Housing Programme. Construction completion date set to September 1988.
