@@ -30,7 +30,7 @@ Fairlea Park Housing Co-operative joined the Ottawa Federation of Housing Co-ope
 
 ### June 27 
 
-Initial member development proposal with Lydia Philips at Ottawa Federation started.
+Initial member development proposal with Lydia Philips at Ottawa Federation of Housing Co-operatives started.
 
 ### July 18
 
@@ -59,3 +59,70 @@ City agreed to purchase land but zoning was still a problem:
 
 ## 1985
 
+### February
+
+Search for architect initiated.
+
+Otto and Bryden selected as architects.
+
+Aproval of Phase 1 start-up finalized.
+
+### March 3 
+
+Began the drafting of Phase 1 start-up proposal which was more detailed and due April 1, 1985 including site plan and preliminary design of units.
+
+### April 1
+
+Deadline made!
+
+### May 28 
+
+Conditional approval given by CMHC for Phase 2 start-up.
+
+Final documents due August 1 to include:
+
+* contractors agreement
+* detailed working drawings
+* lender agreement
+
+Design of units given more detail.
+
+### June 4
+
+Search for lender for mortgage began.
+
+### June 11
+
+Member selection committee formed. Lydia Phillips met to help organize and implement committee's work.
+
+### June 20
+
+The preliminary land price was $444 000.
+
+Contractor selection was initiated.
+
+### July 2
+
+Gilbern and Charles approved as general contractor.
+
+### July 16
+
+Proposed finishes were looked at for windows, floors, carpets.
+
+### July 24
+
+Maritime Life chosen as lender
+
+### July 27
+
+Submission for Phase 2 start-up application completed.
+
+Member Selection Committee made plans to set up information sessions and subsequent interviews.
+
+### August 1 
+
+Deadline met!
+
+### August 11
+
+Contract signed with lender.
